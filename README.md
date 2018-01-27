@@ -60,4 +60,4 @@ ___Вышка___ - "краткое имя" _Высшей Школы Эконом
 + [_аккаунт Instagram_](https://instagram.com/varushka99)
 + [_e-mail_](mailto:varvara.wh@mail.ru)  
 
-___На связи!___:love_letter:
+***На связи!*** :love_letter:
