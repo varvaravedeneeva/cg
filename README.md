@@ -58,5 +58,5 @@ ___Вышка___ - "краткое имя" _Высшей Школы Эконом
 + [_страничка ВКонтакте_](https://vk.com/varenik_s_izuminkoy)
 + [_аккаунт Telegram_](https://t.me/varushka99)
 + [_аккаунт Instagram_](https://instagram.com/varushka99)
-+ [_e-mail_](mailto:varvara.wh@mail.ru)
++ [_e-mail_](mailto:varvara.wh@mail.ru)  
 ___На связи!___:love_letter:
